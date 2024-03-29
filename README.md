@@ -1,7 +1,6 @@
 ![ Web developer ](https://i.ibb.co/zxDsrfC/imran.jpg)
 ### Hi there 👋, My Name is Mohammad Imran Mia
 ####  Web developer 
-![ Web developer ](https://i.ibb.co/zxDsrfC/imran.jpg)
 
 My name is Mohammad Imran mia . I am doing my under gratuation Bangladesh sweden polytechnic institute at Computer Science and Technology . I am being a web developer day by day . 
 
